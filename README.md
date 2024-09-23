@@ -1,1 +1,0 @@
-# Avalia-o-Bimestral-de-Tecnologia-Rob-tico11
